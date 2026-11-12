@@ -1,1 +1,1 @@
-Coś tu będzie.
+Coś tu będzie
